@@ -1,1 +1,2 @@
 # blog_3B_bmf_Mavi
+O colegio Estadual Branca da Mota Fernandes, é um dos colégios mais antigos de Maringá, fundado em Julho de 82. Sendo um dos colegios mais conhecidos da cidade. Hoje em dia a escola prporciona muita coisa, como, cursos técnicos, uma boa alimentação, materiais, uniforme, 
